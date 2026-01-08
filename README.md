@@ -1,5 +1,3 @@
-div align="center">
-
 # DivineFalcon5.org 💜🦅
 ### Dice & I Universe — Falcon Clan Portal
 
